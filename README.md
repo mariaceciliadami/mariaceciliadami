@@ -1,0 +1,4 @@
+- 👋 OI,eu sou a @mariaceciliadami
+- 👀 Estou fazendo o curso do alura e estou muito anciosa para aprender mais 
+- 🌱 Seja bem vindo ao meu perfil 
+- 💞️ Tenho 15 anos
